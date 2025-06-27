@@ -34,7 +34,6 @@ Web Developer | Tech Enthusiast | Cyber Freedom Advocate
 📍 Kanpur, Uttar Pradesh, India
 📧 Email: zaidali.za2635@gmail.com
 📱 Phone: +91 7275591869
-🔗 GitHub: @zaidali6592
 🔗 LinkedIn: Zaid Ali
 🔗 Unstop: Zaid's Profile
 
